@@ -37,3 +37,49 @@ Al trabajar con objetivos y superar retos, mejora la confianza en uno mismo.
 
 Se entrena en grupo, creando un ambiente motivador y de apoyo.
 
+## Instrucciones de cómo realizarlo.
+🏋️‍♂️ Instrucciones para Practicar CrossFit (Principiantes) 🏋️‍♀️
+Si eres nuevo en CrossFit, sigue estos pasos para entrenar de manera segura y efectiva.
+
+1️⃣ Aprende la Técnica Correcta
+Antes de aumentar la intensidad, es clave dominar los movimientos básicos:
+
+🔹 Sentadilla (Squat):
+
+Pies alineados con los hombros.
+Baja empujando las caderas hacia atrás, manteniendo la espalda recta.
+Rodillas no deben sobrepasar la punta de los pies.
+🔹 Peso muerto (Deadlift):
+
+Espalda recta y core firme.
+Levanta la barra o mancuerna usando la fuerza de las piernas, no solo la espalda.
+🔹 Flexiones (Push-ups):
+
+Manos a la altura de los hombros, cuerpo recto.
+Baja hasta casi tocar el suelo y sube sin doblar la cintura.
+🔹 Burpees:
+
+Desde posición de pie, baja al suelo, haz una flexión, salta y repite.
+2️⃣ Calentamiento Antes del Entrenamiento
+🔥 5-10 minutos de movilidad y activación:
+✅ Saltar la cuerda o trotar ligero 🏃‍♂️
+✅ Movilidad de hombros, caderas y tobillos
+✅ Sentadillas sin peso y estiramientos dinámicos
+
+3️⃣ Realiza un WOD (Workout of the Day)
+El WOD (entrenamiento del día) es la rutina que harás. Un ejemplo para principiantes:
+
+🕒 Formato AMRAP (As Many Reps As Possible - tantas repeticiones como sea posible en un tiempo determinado)
+⏳ Tiempo: 10 minutos
+🔹 10 sentadillas
+🔹 10 flexiones
+🔹 10 burpees
+🔹 200 metros de carrera
+
+Objetivo: Hacer tantas rondas como puedas en 10 minutos.
+
+4️⃣ Enfriamiento y Estiramiento
+🧘‍♂️ Dedica 5-10 minutos al final para estirar y relajar los músculos:
+✅ Estiramientos de piernas y brazos
+✅ Respiración profunda para bajar el ritmo cardíaco
+
