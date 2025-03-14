@@ -83,3 +83,48 @@ Objetivo: Hacer tantas rondas como puedas en 10 minutos.
 ✅ Estiramientos de piernas y brazos
 ✅ Respiración profunda para bajar el ritmo cardíaco
 
+##  Consejos y precauciones.
+🏋️‍♂️ Consejos y Precauciones para Practicar CrossFit 🏋️‍♀️
+El CrossFit es un entrenamiento intenso y desafiante, por lo que es fundamental seguir ciertas recomendaciones para obtener los mejores resultados sin riesgo de lesiones.
+
+✅ Consejos para un Entrenamiento Seguro y Eficaz
+💪 1. Aprende la técnica antes de aumentar la intensidad
+
+Es mejor hacer los movimientos correctamente que levantar mucho peso con mala postura.
+Pide ayuda a un entrenador para evitar lesiones.
+⏳ 2. Aumenta la intensidad progresivamente
+
+No intentes hacer WODs avanzados desde el primer día.
+Empieza con poco peso y sube gradualmente.
+🔄 3. Escucha a tu cuerpo
+
+El dolor muscular es normal, pero el dolor agudo o punzante es señal de alerta.
+Descansa cuando sea necesario y evita el sobreentrenamiento.
+🥗 4. Mantén una buena alimentación e hidratación
+
+Consume proteínas y carbohidratos para recuperarte después del ejercicio.
+Bebe suficiente agua antes, durante y después del entrenamiento.
+📌 5. Usa el equipo adecuado
+
+Calzado apropiado: Zapatillas con buena estabilidad y soporte.
+Calleras o guantes (opcional): Para proteger las manos en ejercicios como dominadas o pesas.
+⚠️ Precauciones para Evitar Lesiones
+🚨 1. No descuides el calentamiento
+
+Dedica 5-10 minutos a movilidad articular, cardio ligero y activación muscular.
+Un buen calentamiento reduce el riesgo de esguinces o desgarros.
+⚖️ 2. Mantén una postura adecuada en todos los ejercicios
+
+Espalda recta en sentadillas, peso muerto y levantamientos.
+No arquear la zona lumbar al levantar peso.
+🛑 3. No sobreentrenes
+
+El CrossFit es exigente, así que incluye días de descanso para la recuperación muscular.
+Dormir bien es clave para evitar fatiga y lesiones.
+🚴 4. Modifica los ejercicios si es necesario
+
+Si un movimiento es muy avanzado, haz una versión más sencilla.
+Ejemplo: Flexiones en rodillas en lugar de estándar, saltos más bajos en el cajón.
+🧘 5. No olvides el enfriamiento y estiramiento
+
+Finaliza con estiramientos de piernas, brazos y espalda para prevenir rigidez muscular.
