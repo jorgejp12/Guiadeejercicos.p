@@ -86,3 +86,53 @@ Marchas medias/altas: Para velocidad en terrenos planos o bajadas.
 Después de pedalear, dedica 5-10 minutos a bajar la intensidad.
 🦵 Estira cuádriceps, pantorrillas y espalda baja para evitar dolores musculares.
 
+## Consejos y precauciones
+🚴 Consejos y Precauciones para Practicar Ciclismo 🚴
+Si eres principiante, es importante seguir algunas recomendaciones para mejorar tu rendimiento y evitar lesiones.
+
+✅ Consejos para Mejorar tu Ciclismo
+🔥 1. Ajusta la bicicleta a tu medida
+
+La altura del asiento debe permitir que tu pierna quede casi estirada al pedalear.
+El manillar debe estar a una altura cómoda para evitar tensión en la espalda.
+⚡ 2. Mantén una postura adecuada
+
+Espalda recta y hombros relajados.
+Sujeta el manillar con firmeza, pero sin rigidez.
+No inclines demasiado el cuerpo hacia adelante para evitar dolor de cuello y muñecas.
+💨 3. Pedalea con ritmo constante
+
+Mantén una cadencia entre 60-90 RPM (revoluciones por minuto) para mayor eficiencia.
+Evita cambios bruscos de velocidad que puedan cansarte rápidamente.
+🚲 4. Usa los cambios correctamente
+
+Marchas bajas para subidas o arrancar desde cero.
+Marchas medias/altas para velocidad en terrenos planos.
+Cambia de marcha con anticipación, no cuando ya estás forzando los pedales.
+💦 5. Hidrátate bien y aliméntate correctamente
+
+Bebe agua antes, durante y después del ejercicio.
+Si el entrenamiento dura más de una hora, consume snacks ligeros para mantener la energía.
+⚠️ Precauciones para Evitar Problemas o Lesiones
+🪖 1. Usa equipo de seguridad
+
+Casco obligatorio para protegerte de caídas.
+Luces y reflectantes si entrenas en la calle o de noche.
+Guantes y gafas para mejorar el agarre y proteger los ojos del viento y polvo.
+🚴 2. Respeta las normas de tránsito
+
+Si andas en la calle, sigue las señales de tráfico y usa ciclovías cuando estén disponibles.
+Indica con la mano cuando vayas a girar para evitar accidentes con otros ciclistas o vehículos.
+🛑 3. No sobrecargues tu cuerpo
+
+Aumenta el tiempo e intensidad progresivamente para evitar fatiga muscular.
+Descansa si sientes dolor en rodillas, espalda o muñecas.
+🌡️ 4. Evita entrenar en condiciones extremas
+
+No salgas en temperaturas muy altas sin protección solar e hidratación.
+Si llueve, ten precaución con el suelo resbaladizo y la visibilidad reducida.
+🔧 5. Revisa tu bicicleta antes de cada salida
+
+Verifica la presión de los neumáticos.
+Asegúrate de que los frenos funcionen correctamente.
+Lubrica la cadena regularmente para evitar desgaste prematuro.
