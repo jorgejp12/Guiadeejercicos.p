@@ -61,3 +61,42 @@ Antes de estirar, es importante preparar los músculos para evitar lesiones. Pue
 3️⃣ Enfriamiento y Relajación (5 Minutos) 🧘‍♀️
 Después de los estiramientos, finaliza con respiraciones profundas y movimientos suaves para relajar el cuerpo.
 
+##  Consejos y precauciones
+🧘‍♂️ Consejos y Precauciones para Ejercicios de Flexibilidad 🧘‍♀️
+Los ejercicios de flexibilidad son excelentes para mejorar la movilidad y reducir la tensión muscular, pero es importante realizarlos correctamente para evitar lesiones.
+
+✅ Consejos para un Estiramiento Seguro y Eficaz
+🔹 1. Calienta antes de estirar 🔥
+
+Unos 5-10 minutos de trote suave o movilidad articular prepararán tus músculos.
+Evita estirar en frío para prevenir desgarros.
+🔹 2. No rebotes ni hagas movimientos bruscos 🚫
+
+Mantén los estiramientos estáticos entre 20-30 segundos.
+Movimientos bruscos pueden causar lesiones musculares.
+🔹 3. Respira profundamente 😮‍💨
+
+Inhala por la nariz y exhala por la boca para relajar el cuerpo.
+No contengas la respiración durante los estiramientos.
+🔹 4. No fuerces más allá de tu límite ⚠️
+
+La flexibilidad mejora con el tiempo, no intentes llegar demasiado lejos en un solo día.
+Debes sentir tensión, pero nunca dolor agudo.
+🔹 5. Mantén una buena postura 🏋️‍♂️
+
+La espalda recta y el cuerpo alineado evitan sobrecargar ciertas zonas.
+Un mal posicionamiento puede causar molestias en la columna.
+🔹 6. Sé constante, pero sin exagerar 📅
+
+Para mejorar la flexibilidad, practica al menos 3-4 veces por semana.
+No es necesario hacer sesiones largas, 15-20 minutos diarios son suficientes.
+⚠️ Precauciones para Evitar Lesiones
+🚨 1. Evita estirar si tienes una lesión
+
+Consulta con un especialista antes de hacerlo si tienes un esguince, desgarro o inflamación.
+🛑 2. No te compares con otros
+
+Cada cuerpo tiene su propio ritmo de mejora en flexibilidad.
+🦵 3. No ignores el enfriamiento
+
+Después del ejercicio, realiza estiramientos suaves para evitar rigidez muscular.
